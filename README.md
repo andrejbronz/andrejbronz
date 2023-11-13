@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @andrejbronz
 - 👀 I’m interested in my profile 
-- 🌱 I’m currently learning everything about everything 
+- 🌱 I’m currently learning everything about seven 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
