@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @andrejbronz
 - 👀 I’m interested in my profile 
 - 🌱 I’m currently learning everything about seven 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on my profile 
 - 📫 How to reach me ...
 
 <!---
