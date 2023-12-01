@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning everything about seven ELEVEN
 - 💞️ I’m looking to collaborate on my profile 
 - 📫 How to reach me VIA GITHUB OR twitte
-- AND i will improve my profile 
+- AND i will improve my profile sooner or later 
 
 - 
 <!---
