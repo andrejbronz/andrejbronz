@@ -5,7 +5,8 @@
 - 📫 How to reach me VIA GITHUB OR twitte
 - AND i will improve my profile sooner or later
 - - SO I STARTED FROM TODAY
-  - We can cooparete with coding 
+  - We can cooparete with coding
+  - - i know something 
 
 <!---
 andrejbronz/andrejbronz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
