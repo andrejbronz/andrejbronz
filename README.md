@@ -6,7 +6,7 @@
 - AND i will improve my profile sooner or later
 - - SO I STARTED FROM TODAY
   - We can cooparete about coding
-  - 
+  - write me what is wrong 
 <!---
 andrejbronz/andrejbronz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
