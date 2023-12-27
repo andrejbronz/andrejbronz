@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my profile 
 - 📫 How to reach me VIA GITHUB OR twitte
 - AND i will improve my profile sooner or later
-- - 
+- - this is my first day 
   - 
   - 
 <!---
