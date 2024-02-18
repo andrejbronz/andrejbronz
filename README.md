@@ -20,7 +20,8 @@
 - KAROTIA
 - spageteria
 - 50DAY STRAIGHT or i bet you 
-- OUT OF ORDER for you all you 
+- OUT OF ORDER for you all you
+- - omare
 andrejbronz/andrejbronz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
