@@ -17,8 +17,6 @@
 - croatia
 - SERBIA
 - GLUTAMIA
-- KAROTIA
-
 - 50DAY STRAIGHT or i bet you 
 - OUT OF ORDER for you all you
 - - omare
